@@ -1,0 +1,4 @@
+- 👋 Hi, I’m Amanda Bela Fitria!
+- 👀 I’m interested in Accounting, Tax, and Data Analytic.
+- 🌱 I’m currently learning in Diponegoro University.
+- 📫 Reach out to me at amandabelafr@gmail.com
